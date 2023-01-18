@@ -1,0 +1,2 @@
+# Welcome-to-the-EarnWithRegina-Community-the-community-hub-for-Forex-binary-traders-
+Our community is made up of experienced and novice bitcoin traders round the globe . Regardless of your experience level, background, or motivation for joining this group, we welcome you and are happy to have you! We’re here to support each other, share educational resources and tips, and grow the Forex/Binary Community.
